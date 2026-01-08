@@ -1,4 +1,4 @@
-# shadowsocks.com 官网
+# shadowsocks官网最新地址
 
 永久官网：[shadowsocks.com](https://secure.shadowsocks.au/aff.php?aff=32113)
 
